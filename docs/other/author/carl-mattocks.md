@@ -1,7 +1,7 @@
 # Carl Mattocks
 
 - [LinkedIn](https://www.linkedin.com/in/carlmattocks/)
-- General Electric, New York Power Authority
+- Wellness Intelligence Institute (https://www.wellnessintelligence.institute/)
 
 ## Articles
 
